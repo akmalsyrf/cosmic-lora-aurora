@@ -62,4 +62,4 @@ On-going
 
 ## Contact Us
 
-Any issue of the tutorial or need IoT solutions? Please [contact us](https://wa.me/6282117421332)
+Any issue of the tutorial or need IoT solutions? Please [contact us](https://wa.me/6282117421332) 
